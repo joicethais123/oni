@@ -1,1 +1,6 @@
-# oni
+#escravidão Alura 
+
+É considerado escravidão o regime de trabalho no qual homens e mulheres são forçados a executar tarefas sem receber qualquer tipo de remuneração. Além disso, as pessoas escravizadas têm suas liberdades tolhidas, pois são consideradas propriedades de seus senhores, podendo ser vendidas ou trocadas como mercadorias.
+A escravidão no Brasil teve início no século XVI, durante o Período Colonial, e consistiu no uso da mão-de-obra forçada de mulheres e homens africanos. Essas pessoas foram retiradas a força dos muitos grupos étnicos dos quais faziam parte no continente africano e trazidas ao Brasil nos chamados navios negreiros.
+A abulição do trabalho escravo ocorreu por meio da lei Àurea,aprovada dia 13 de maio de 1888 com a assinatura da regente do brazil,a princesa Isabel.A abolição da escravatura foi a conclusão de uma campanha popular que precionou o Inperio para que a instituição da escravidão fosse abolida de nossos países.
+a regime da escravidão no Brazil foi o trabalho estremo(pesado) e violencia,onde os escravos sofriam punição publica com frequencia 
